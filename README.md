@@ -1,8 +1,4 @@
-闲得上网耍耍别人玩，人就要快乐心情不好写网络日记<br>
-私人项目安装和研究制造我付不起钱了就会很😤🙄🙃🐈得不到需要的物品就会不高兴。
-键政逗人玩被迫害我更😡了。
-但凡我看到萌萌二次元头像猫耳什么的…玩エロゲーム网上刷图的肥宅
-<br>我就想说他今天手冲了吗🐸你今天手冲了吗🖤你有腿毛吗我来给你拔了烧了(⁠≧⁠▽⁠≦⁠)呵呵哈哈哈
-
+立创Eda下载
+https://drive.google.com/drive/u/0/mobile/folders/1GFYg6gh9n2lwD63Ic0IhFn5D7d8-Us8c
 
 <img src ="https://github.com/xfmn/xfmn/blob/main/6d79318946d44785b1b056e61bb29030%20(1).png">
